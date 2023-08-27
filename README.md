@@ -1,0 +1,2 @@
+# Trasluz
+ Juego: "Explora un viaje introspectivo único donde tus decisiones pasadas y presentes dan forma a tu experiencia. Transforma lo negativo en positivo, cultivando la paz interior mientras navegas desafíos que reflejan tu evolución personal. Descubre cómo tus elecciones influyen en tu mundo interno y en el entorno que te rodea, avanzando hacia una mente más serena y un mundo más armonioso."
